@@ -1,4 +1,4 @@
-# Hi, I'm Abdinajiib Abdirahman Ali 👋
+# Hi, I'm Najiib Abdirahman Ali 👋
 
 ## 💻 Software Engineering Student · Web Developer
 
